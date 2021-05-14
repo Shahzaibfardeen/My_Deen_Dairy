@@ -19,3 +19,6 @@
 10. **Allahummag Firlee Zunoobee Ya Rabbal Aalameen.**
 
 11. **Allahumma Aatiqnee Minannari Wa Adkhilnee Fil Jannati Yaa Rabbal Aalameen.**
+
+
+Yet I Will Add Soon Guys 
