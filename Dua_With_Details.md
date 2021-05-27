@@ -1,5 +1,7 @@
-Duas:
-To Relieve Worries, Depression & Difficulty
+<h1> Dua With Brief Detials
+
+
+1. To Relieve Worries, Depression & Difficulty
 	
   <p align="center"> Wata Wakkal Alal Laah, Wa Ka-Faa Billahi Wakeela </p>
 
