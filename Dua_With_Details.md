@@ -1,4 +1,4 @@
-<h1> Dua With Brief Detials
+<h1> Dua With Brief Detials </h1>
 
 
 1. To Relieve Worries, Depression & Difficulty
